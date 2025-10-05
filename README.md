@@ -5,7 +5,7 @@
 
 **Diamond$Domes – Empowering Digital Innovation and Global Trade**
 
-At Diamond$Domes, we are more than just a company; we are a forward-looking enterprise that blends technology, innovation, and global commerce to create a lasting impact. Established with a vision to redefine the boundaries of app development and international trade, Diamond$Domes has grown into a trusted brand that stands at the intersection of **digital solutions** and **import-export excellence**. Our dual focus allows us to deliver scalable applications that transform industries, while also engaging in global commerce that connects markets, cultures, and opportunities across borders.
+At Diamond$Domes, we are more than just a company; we are a forward-looking enterprise that blends technology, innovation, and global commerce to create a lasting impact. Established with a vision to redefine the boundaries of app development and international trade, Diamond$Domes has grown into a trusted brand that stands at the intersection of **digital solutions** and **import-export excellence**. Our dual focus allows us to deliver scalable applications that transform industries, while also engaging in global commerce that connects markets, cultures, and opportunities across borders..
 
 ### Pioneers in App Development
 
